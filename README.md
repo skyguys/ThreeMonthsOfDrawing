@@ -18,7 +18,7 @@ I still have a **ton** more art, but I don't like sharing it (not that they're i
 
 ## Now, I didn't spend a fortune on drawing courses. Everything here was done using an online course called Drawabox. You can find their website below.
 
-[Link](https://drawabox.com/)
+[Drawabox (This is an entirely FREE course! It is quite challenging but is worth the time and effort!](https://drawabox.com/)
 
 - Bulleted
 - List
