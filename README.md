@@ -4,13 +4,21 @@ Three months ago, I was bored in quarantine and decided to pick up drawing. What
 
 Funny enough, what motivated me to start this little experiment was that I got a 70% on an english project, which I drew. Of course, the art wasn't a big part of it, but I couldn't help but believe that it did contribute to that dissapointing grade. So, I got working.
 
-# Dragons! I really like drawing dragons for some apparent reason. Here are some cool firey boys!
+## Dragons! I really like drawing dragons for some apparent reason. Here are some cool firey boys!
 ![Image](src)
 ![Image](src)
 ![Image](src)
 ![Image](src)
-## Header 2
-### Header 3
+## Here are some other random art pieces too! 
+![Image](src)
+![Image](src)
+![Image](src)
+
+I still have a **ton** more art, but I don't like sharing it (not that they're inherently bad, I just like keeping my art private!)
+
+## Now, I didn't spend a fortune on drawing courses. Everything here was done using an online course called Drawabox. You can find their website below.
+
+[Link](https://drawabox.com/)
 
 - Bulleted
 - List
