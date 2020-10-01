@@ -6,8 +6,8 @@ Funny enough, what motivated me to start this little experiment was that I got a
 
 ## Dragons! I really like drawing dragons for some apparent reason. Here are some cool firey boys!
 ![Drake (a special type of dragon!)](drake pumpkin no signature.png)
+![first attempt at a dragon!](dragon no signature 8.5x11.png)
 ![A N G E R Y dragon!](ice dragon fire no signature.png)
-![first attempt at a dragon!](dragon no signature.png)
 ![cute sleepy boi](dragon sleeping shadow super fix + gems no signature.png)
 ## Here are some other random art pieces too! 
 ![my first attempt at digital painting!](night sky drawing.png)
