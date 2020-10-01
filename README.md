@@ -10,11 +10,11 @@ Funny enough, what motivated me to start this little experiment was that I got a
 ![first attempt at a dragon!](dragon no signature.png)
 ![cute sleepy boi](dragon sleeping shadow super fix + gems no signature.png)
 ## Here are some other random art pieces too! 
-![Image](src)
-![Image](src)
-![Image](src)
+![my first attempt at digital painting!](night sky drawing.png)
+![a more recent attempt at digital painting](moonchild no signature no ground.png
+![silhouette attempt!](cliff over water.png)
 
-I still have a **ton** more art, but I don't like sharing it (not that they're inherently bad, I just like keeping my art private!)
+I still have a **ton** more art, but I don't like sharing most of it (not that they're inherently bad (some of my art is absolutely garbage and some are absolutely beautiful) I just like keeping my art private!)
 
 ## Now, I didn't spend a fortune on drawing courses. Everything here was done using a FREE online course called Drawabox. You can find their website below.
 
@@ -28,6 +28,3 @@ This course teaches you the following things:
 - And much, much more!
 I comepletely reccommend this course to anyone who wants to pick up drawing! It IS challenging, there are some lessons which I totally bombed, but it is a great learning experience. 
 
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
