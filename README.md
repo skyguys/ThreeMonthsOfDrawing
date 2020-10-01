@@ -11,7 +11,7 @@ Funny enough, what motivated me to start this little experiment was that I got a
 ![cute sleepy boi](dragon sleeping shadow super fix + gems no signature.png)
 ## Here are some other random art pieces too! 
 ![my first attempt at digital painting!](night sky drawing.png)
-![a more recent attempt at digital painting](moonchild no signature no ground.png
+![a more recent attempt at digital painting](moonchild no signature no ground.png)
 ![silhouette attempt!](cliff over water.png)
 
 I still have a **ton** more art, but I don't like sharing most of it (not that they're inherently bad (some of my art is absolutely garbage and some are absolutely beautiful) I just like keeping my art private!)
