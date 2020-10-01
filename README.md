@@ -5,10 +5,10 @@ Three months ago, I was bored in quarantine and decided to pick up drawing. What
 Funny enough, what motivated me to start this little experiment was that I got a 70% on an english project, which I drew. Of course, the art wasn't a big part of it, but I couldn't help but believe that it did contribute to that dissapointing grade. So, I got working.
 
 ## Dragons! I really like drawing dragons for some apparent reason. Here are some cool firey boys!
-![Image](drake pumpkin no signature.png)
-![Image](ice dragon fire no signature.png)
-![Image](src)
-![Image](src)
+![Drake (a special type of dragon!)](drake pumpkin no signature.png)
+![A N G E R Y dragon!](ice dragon fire no signature.png)
+![first attempt at a dragon!](dragon no signature.png)
+![cute sleepy boi](dragon sleeping shadow super fix + gems no signature.png)
 ## Here are some other random art pieces too! 
 ![Image](src)
 ![Image](src)
