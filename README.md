@@ -26,5 +26,6 @@ This course teaches you the following things:
 - Construction
 - Developing an idea of 3D Space
 - And much, much more!
+
 I comepletely reccommend this course to anyone who wants to pick up drawing! It IS challenging, there are some lessons which I totally bombed, but it is a great learning experience. 
 
