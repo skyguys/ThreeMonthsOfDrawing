@@ -4,6 +4,8 @@ Three months ago, I was bored in quarantine and decided to pick up drawing. What
 
 Funny enough, what motivated me to start this little experiment was that I got a 70% on an english project, which I drew. Of course, the art wasn't a big part of it, as it was english class, but I couldn't help but believe that it did contribute to that dissapointing grade. I always wanted to draw as well as I really like webcomics and such, so, I got working.
 
+What you see below are a bunch of results from the three months I have started drawing, some drawn when I first started and some drawn very recently!
+
 ## Dragons! I really like drawing dragons for some apparent reason. Here are some cool firey boys!
 ![Drake (a special type of dragon!)](drake pumpkin no signature.png)
 ![first attempt at a dragon!](dragon no signature 8.5x11.png)
