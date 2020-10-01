@@ -16,15 +16,17 @@ Funny enough, what motivated me to start this little experiment was that I got a
 
 I still have a **ton** more art, but I don't like sharing it (not that they're inherently bad, I just like keeping my art private!)
 
-## Now, I didn't spend a fortune on drawing courses. Everything here was done using an online course called Drawabox. You can find their website below.
+## Now, I didn't spend a fortune on drawing courses. Everything here was done using a FREE online course called Drawabox. You can find their website below.
 
 [Drawabox (This is an entirely FREE course! It is quite challenging but is worth the time and effort!](https://drawabox.com/)
 
-- Bulleted
-- List
-
-1. Numbered
-2. List
+This course teaches you the following things:
+- Proper Linework
+- Perspective
+- Construction
+- Developing an idea of 3D Space
+- And much, much more!
+I comepletely reccommend this course to anyone who wants to pick up drawing! It IS challenging, there are some lessons which I totally bombed, but it is a great learning experience. 
 
 **Bold** and _Italic_ and `Code` text
 
