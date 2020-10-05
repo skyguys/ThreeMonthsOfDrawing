@@ -10,7 +10,7 @@ What you see below are a bunch of results from the three months I have started d
 ![Drake (a special type of dragon!)](drake pumpkin no signature.png)
 ![first attempt at a dragon!](dragon no signature 8.5x11.png)
 ![A N G E R Y dragon!](ice dragon fire no signature.png)
-![cute sleepy boi](dragon sleeping shadow super fix + gems no signature.png)
+![cute sleepy boi](dragon sleeping.png)
 ## Here are some other random art pieces too! 
 ![my first attempt at digital painting!](night sky drawing.png)
 ![silhouette attempt!](cliff over water.png)
