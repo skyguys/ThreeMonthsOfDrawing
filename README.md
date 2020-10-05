@@ -14,7 +14,8 @@ What you see below are a bunch of results from the three months I have started d
 ## Here are some other random art pieces too! 
 ![my first attempt at digital painting!](night sky drawing.png)
 ![silhouette attempt!](cliff over water.png)
-
+![halloween vibes](20201004_224224.jpg)
+![galaxy!](galaxy over water.png)
 I still have a **ton** more art, but I don't like sharing most of it (not that they're inherently bad (some of my art is absolutely garbage and some are absolutely beautiful) I just like keeping my art private!)
 
 ## Now, I didn't spend a fortune on drawing courses. Everything here was done using a FREE online course called Drawabox. You can find their website below.
