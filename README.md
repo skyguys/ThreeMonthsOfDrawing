@@ -6,16 +6,10 @@ Funny enough, what motivated me to start this little experiment was that I got a
 
 What you see below are a bunch of results from the three months I have started drawing, some drawn when I first started and some drawn very recently!
 
-## Dragons! I really like drawing dragons for some apparent reason. Here are some cool firey boys!
-![Drake (a special type of dragon!)](drake pumpkin no signature.png)
-![first attempt at a dragon!](dragon no signature 8.5x11.png)
-![A N G E R Y dragon!](ice dragon fire no signature.png)
-![cute sleepy boi](dragon sleeping.png)
-## Here are some other random art pieces too! 
+## Here are some random art pieces! 
 ![my first attempt at digital painting!](night sky drawing.png)
 ![silhouette attempt!](cliff over water.png)
 ![halloween vibes](werewolf.jpg)
-![galaxy!](galaxy over water.png)
 
 I still have a **ton** more art, but I don't like sharing most of it (not that they're inherently bad (some of my art is absolutely garbage and some are absolutely beautiful) I just like keeping my art private!)
 
