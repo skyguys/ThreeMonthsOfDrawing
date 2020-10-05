@@ -9,7 +9,7 @@ What you see below are a select few results from the three months I have started
 ## Here are some random art pieces! 
 ![my first attempt at digital painting!](night sky drawing.png)
 ![silhouette attempt!](cliff over water.png)
-![halloween vibes](werewolf.jpg)
+![halloween vibes](20201004_224224.jpg)
 
 I still have a **ton** more art, but I don't like sharing most of it (not that they're inherently bad (some of my art is absolutely garbage and some are absolutely beautiful) I just like keeping my art private!)
 
