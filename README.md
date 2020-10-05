@@ -4,7 +4,7 @@ Three months ago, I was bored in quarantine and decided to pick up drawing. What
 
 Funny enough, what motivated me to start this little experiment was that I got a 70% on an english project, which I drew. Of course, the art wasn't a big part of it, as it was english class, but I couldn't help but believe that it did contribute to that dissapointing grade. I always wanted to draw as well as I really like webcomics and such, so, I got working.
 
-What you see below are a bunch of results from the three months I have started drawing, some drawn when I first started and some drawn very recently!
+What you see below are a select few results from the three months I have started drawing, some drawn when I first started and some drawn very recently!
 
 ## Here are some random art pieces! 
 ![my first attempt at digital painting!](night sky drawing.png)
